@@ -1,0 +1,1 @@
+# barchasi_bittada_tushunarli
